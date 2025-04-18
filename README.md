@@ -1,3 +1,5 @@
+[Qualitative Project.pptx](https://github.com/user-attachments/files/19810613/Qualitative.Project.pptx)
+[Caught Between Cultures.docx](https://github.com/user-attachments/files/19810610/Caught.Between.Cultures.docx)
 # Mumbai Migrant Youth Study: Navigating Traditional Family Expectations and Modern Lifestyles
 
 This qualitative research explores how young migrant adults in Mumbai navigate the tensions between traditional family expectations and modern city life. Through semi-structured interviews and thematic analysis, this study sheds light on the challenges and opportunities faced by this demographic in balancing cultural norms and contemporary urban life.
